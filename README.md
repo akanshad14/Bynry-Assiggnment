@@ -1,1 +1,1 @@
-# Bynry-Assiggnment
+# Bynry-Assignment
